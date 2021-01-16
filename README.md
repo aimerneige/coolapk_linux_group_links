@@ -24,8 +24,7 @@ QQ 群号：1039477758
 - 密斯忒卿 <https://www.cnblogs.com/OneToken/>
 - xkeyC <https://xkeyc.cn/#>
 - flous <https://flous.top>
-- beiwoshi小小柳之絮 <https://www.gymxbl.com>
-- ??? <https://www.lolitata.cn>
+- beiwoshi小小柳之絮 <https://www.gymxbl.com> <https://www.lolitata.cn>
 - Aimer_Neige <https://aimerneige.com>
 - star_caoui <https://web-worker.cn>
 - kiteab <https://kiteab.ga>
