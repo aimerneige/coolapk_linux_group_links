@@ -25,6 +25,6 @@ QQ 群号：1039477758
 - xkeyC <https://xkeyc.cn/#>
 - flous <https://flous.top>
 - beiwoshi小小柳之絮 <https://www.gymxbl.com> <https://www.lolitata.cn>
-- Aimer_Neige <https://aimerneige.com>
+- Aimer_Neige <https://aimerneige.com> <http://aimer.neige.icu:996/>
 - star_caoui <https://web-worker.cn>
 - kiteab <https://kiteab.ga>
