@@ -18,7 +18,7 @@ QQ 群号：1039477758
 - 啦哆咪 <https://lado.me>
 - 秋枫酱 <https://akinokae.de>
 - 弥散之雾 <https://www.misanzhiwu.top/>
-- print("Hello World") <https://xomandwhy.网址>
+- None <https://cuya.cyz>
 - gao_cai_sheng <https://qwq2333.top>
 - 世一归 <https://www.cnblogs.com/jzgw/>
 - 密斯忒卿 <https://www.cnblogs.com/OneToken/>
