@@ -29,3 +29,7 @@ QQ 群号：1039477758
 - star_caoui <https://web-worker.cn>
 - kiteab <https://kiteab.ga>
 - WhiteFan的个人博客 <https://www.baifan97.cn>
+
+---
+
+如需互换友链请进群与群友 py
